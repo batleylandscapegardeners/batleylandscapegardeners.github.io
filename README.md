@@ -1,2 +1,4 @@
-# batleylandscapegardeners.github.io
-Batley Landscape Gardeners - garden design, landscaping and maintenance in Batley, West Yorkshire
+# Batley Landscape Gardeners
+
+Garden design, patios, fencing, lawns and hedge work in Batley & Kirklees, West Yorkshire.
+An independent enquiry service operated by The Shemesh Studio.
